@@ -5,4 +5,4 @@ Me gusta la musica ♥
 
 Me gusta la comida ☻
 
-Y el aire libre •
+Y el aire libre ♣
